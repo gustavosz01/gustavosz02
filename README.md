@@ -6,4 +6,6 @@
 ![CorinthiansGIF](https://github.com/user-attachments/assets/175f0474-3aad-4978-826c-7caa67201da8)
 ![RonaldinhoTongueGIF](https://github.com/user-attachments/assets/f0660e25-9654-429d-b983-11a070c5c767)
 ![Uploading BandeiraGaviõesDaFielGIF.gif…]()
-
+![SoccerFelipeMeloGIF](https://github.com/user-attachments/assets/f9f60742-d644-4b53-8cf2-289499e47754)
+![BelocianStadeRennaisGIF](https://github.com/user-attachments/assets/66fece1d-dca4-4a90-a90b-44f156c27dcf)
+![CorinthiansRodrigoGarroGIF](https://github.com/user-attachments/assets/0905438e-4b95-4919-85d4-e4d8a946a588)
